@@ -1,0 +1,1 @@
+# android-google-play-and-other-app-store-review-guidelines-tips
